@@ -13,3 +13,7 @@ Stevie's favorite ice cream flavors:
 - Meal worm
 - Shrimp flakes
 - Sunflower seed
+
+My favorite ice cream flavors:
+- My mom is a alien
+- Valorant Ass
